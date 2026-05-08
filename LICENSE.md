@@ -1,4 +1,4 @@
-
+Enhance VMware Fusion for macOS with top VMware Fusion for macOS App | OCR-support + hotkey-customization, the #1 app. Includes OCR-support and hotkey-customization for a smoother
 
 
 
